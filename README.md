@@ -17,3 +17,7 @@ Each artefact within our archive is not merely a vestige of yesteryears; it is a
 In a Cosmos of Intelligence:
 
 In a cosmos where intelligence serves as both cudgel and bastion, our archive stands as a bastion of verity, a sanctuary of illumination, and a beacon of sanguinity for posterity. Together, let us embark on an odyssey of discovery, as we unravel the mosaic of human knowledge and endeavor to inscribe an indelible imprint upon the annals of eternity. 
+
+As a whole we do not engage in social media conversation or opinions. 
+
+Please note that we does NOT actively use or endorse any social media channels and hence ANY posts with content from this Website, The Vatican Vault has an official Link tree page, though this online resource you can navigate our servers.
